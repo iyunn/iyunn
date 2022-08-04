@@ -9,15 +9,15 @@
 
 - 🤝 I’m looking for help with **-**
 
-- 👨‍💻 All of my projects are available at [not yet](not yet)
+- 👨‍💻 All of my projects are available at [not yet]
 
-- 📝 I regularly write articles on [not yet](not yet)
+- 📝 I regularly write articles on [not yet]
 
 - 💬 Ask me about **anything**
 
 - 📫 How to reach me **fillian.adriansyahu@gmail.com**
 
-- 📄 Know about my experiences [not yet](not yet)
+- 📄 Know about my experiences [not yet]
 
 - ⚡ Fun fact **nothing**
 
